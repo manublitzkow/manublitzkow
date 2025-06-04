@@ -1,1 +1,1 @@
-- Olá, me chamo Manuelly
+- Olá, meu nome é Manuelly
